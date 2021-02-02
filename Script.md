@@ -28,7 +28,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-David met the Unicorn King who granted him magic powers.
+David met the Unicorn King who granted him magic powers, annd made him the king to the surrounding kingdom around the zoo.
 The end.
 
 ## Cast
